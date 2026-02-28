@@ -1,3 +1,3 @@
-# hey y'all!
+# hey, y'all
 
-I'm Zach. 
+I'm Zach.
