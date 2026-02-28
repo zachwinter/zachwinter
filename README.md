@@ -1,5 +1,7 @@
 # hey, y'all
 
-I'm `Zach`. I'm in the throws of disovering the ways in which I'd like to reframe my relationship with the public internet.
+I'm `Zach`. 
 
-Please excuse my temporary brevity. More to come!
+I'm currently exploring ways I might reframe my relationship with the public internet. Please forgive my brevity in the emeantime. <3 
+
+[email](mailto:zachary.todd.winter@gmail.com) • [lnkd.in](https://lnkd.in/zach)  • [shadertoy](https://www.shadertoy.com/user/yozic) • [instagram](https://instagram.com/zachary.io) 
