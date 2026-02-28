@@ -1,5 +1,5 @@
 # hey, y'all
 
-I'm `Zach`. I'm in the ongoing process of `dramatically simplifying` my online life. 
+I'm `Zach`. I'm in the throws of disovering the ways in which I'd like to reframe my relationship with the public internet.
 
-What, exactly, that looks like, is an ongoing process. More soon.
+Please excuse my temporary brevity. More to come!
